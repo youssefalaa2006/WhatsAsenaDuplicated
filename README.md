@@ -1,7 +1,7 @@
 ## Thanks for Everything 
 ### We will always remember you..
 
-- [Yusuf Usta](https://github.com/yusufusta)
+- [Yusuf Usta](https://github.com/youssefalaa2006)
 - [@fusufs](https://t.me/fusufs)
 
 <p align="center">
